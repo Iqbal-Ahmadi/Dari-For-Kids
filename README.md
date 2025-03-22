@@ -1,0 +1,1 @@
+Dari for Kids is a fun and engaging app designed to help children learn Dari in an interactive way. It combines reading exercises, quizzes, and a drawing section to make learning enjoyable. By blending education with entertainment, the app keeps kids engaged, making it easier for them to develop their language skills while having fun.
